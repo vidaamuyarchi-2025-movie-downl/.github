@@ -38,6 +38,44 @@ The narrative will reveal various aspects of vidaamuyarchi's life—his struggle
 
 In addition, several other prominent actors will contribute to the film, including well-known actors and actresses. The chemistry between these characters will make the story even more thrilling.
 
+vidaamuyarchi 𝘙𝘦𝘭𝘦𝘢𝘴𝘦 𝘥𝘢𝘵𝘦
+
+vidaamuyarchi 𝘙𝘦𝘷𝘪𝘦𝘸𝘴
+
+vidaamuyarchi 𝘔𝘰𝘷𝘪𝘦 𝘳𝘢𝘵𝘪𝘯𝘨
+
+vidaamuyarchi 𝘙𝘢𝘵𝘪𝘯𝘨
+
+vidaamuyarchi 𝘉𝘰𝘹 𝘰𝘧𝘧𝘪𝘤𝘦 𝘤𝘰𝘭𝘭𝘦𝘤𝘵𝘪𝘰𝘯
+
+vidaamuyarchi (2024) 𝘍𝘶𝘭𝘭 𝘔𝘰𝘷𝘪𝘦 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘪𝘯 𝘛𝘢𝘮𝘪𝘭 𝘮𝘰𝘷𝘪𝘦𝘴𝘥𝘢 720𝘱, 480𝘱, 1080𝘱
+
+vidaamuyarchi 𝘍𝘶𝘭𝘭 𝘔𝘰𝘷𝘪𝘦 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘪𝘯 𝘍𝘪𝘭𝘮𝘺𝘻𝘪𝘭𝘭𝘢
+
+vidaamuyarchi 𝘍𝘶𝘭𝘭 𝘮𝘰𝘷𝘪𝘦 𝘥𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘪𝘯 𝘏𝘪𝘯𝘥𝘪 𝘍𝘪𝘭𝘮𝘺𝘸𝘢𝘱 𝘮𝘱4𝘮𝘰𝘷𝘪𝘦𝘴
+
+vidaamuyarchi 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘒𝘶𝘵𝘵𝘺𝘮𝘰𝘷𝘪𝘦𝘴
+
+vidaamuyarchi 𝘙𝘦𝘷𝘪𝘦𝘸
+
+vidaamuyarchi 𝘔𝘰𝘷𝘪𝘦 𝘳𝘦𝘷𝘪𝘦𝘸
+
+vidaamuyarchi 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘍𝘳𝘦𝘦
+
+vidaamuyarchi 𝘍𝘶𝘭𝘭𝘔𝘰𝘷𝘪𝘦
+
+vidaamuyarchi 𝘍𝘪𝘭𝘮𝘺𝘻𝘪𝘭𝘭𝘢 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘍𝘳𝘦𝘦 720𝘱
+
+vidaamuyarchi 𝘞𝘩𝘦𝘳𝘦 𝘵𝘰 𝘸𝘢𝘵𝘤𝘩 𝘕𝘦𝘵𝘧𝘭𝘪𝘹 𝘏𝘪𝘯𝘥𝘪 𝘮𝘰𝘷𝘪𝘦𝘴 𝘧𝘰𝘳 𝘧𝘳𝘦𝘦
+
+vidaamuyarchi 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘧𝘳𝘦𝘦 𝘍𝘪𝘭𝘮𝘺𝘻𝘪𝘭𝘭𝘢 𝘮𝘱4𝘮𝘰𝘷𝘪𝘦𝘴
+
+vidaamuyarchi 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘧𝘳𝘦𝘦 𝘍𝘪𝘭𝘮𝘺𝘻𝘪𝘭𝘭𝘢 𝘏𝘪𝘯𝘥𝘪 𝘥𝘶𝘣𝘣𝘦𝘥
+
+vidaamuyarchi 𝘋𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘧𝘳𝘦𝘦 𝘍𝘪𝘭𝘮𝘺𝘸𝘢𝘱 𝘪𝘯 𝘏𝘪𝘯𝘥𝘪
+
+vidaamuyarchi 𝘊𝘢𝘯 𝘐 𝘥𝘰𝘸𝘯𝘭𝘰𝘢𝘥 𝘒𝘶𝘵𝘵𝘺𝘮𝘰𝘷𝘪𝘦𝘴 𝘪𝘯 𝘛𝘢𝘮𝘪𝘭𝘳𝘰𝘤𝘬𝘦𝘳𝘴
+
 ## Direction and Production
 
 The film is directed by **Srinivas Reddy**, known for his innovation and excellence in filmmaking. His experience and vision will give the film a new direction. **vidaamuyarchi** is being produced on a large scale, and both the producer and director are very excited about it.
